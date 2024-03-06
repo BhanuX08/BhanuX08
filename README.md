@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Company Likes Engeenering Job
 - 📫 How to reach me bhanuchouhan286@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: On Earth Many Types Of Camel Lives
+- ⚡ Fun fact: On Earth Many Types Of Camel Live
 
 <!---
 BhanuX08/BhanuX08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
